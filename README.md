@@ -1,0 +1,1 @@
+Adam Stańczyk, 5 BDiSE2, 202297
